@@ -1,0 +1,1 @@
+Take the Pizza Base, Apply Sauce, Sprinkle Some Cheese, Place the vegetabels on the Pizza base, sprinkle some more cheese and bake it.
